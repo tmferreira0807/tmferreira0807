@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games (like pretty much everyone here), music (pretty original ik) and surprisingly going out
 - 🌱 I’m currently learning how to properly manage and keep a site that can make it's users' life easier
 - 💞️ I’m looking to collaborate on front-end and back-end developing
-- 📫 You can find me on Instagram: @thulio_oo and through my email: thulio.profissional@gmail.com
+- 📫 You can find me on LinkedIn: www.linkedin.com/in/tmferreira0807 Instagram: @thulio_oo and through my email: thulio.profissional@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Back in high school I was a chess tri-time champion
 
